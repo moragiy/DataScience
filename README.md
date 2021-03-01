@@ -1,1 +1,1 @@
-This is my first README--
+hi i just met you and this is crazy
